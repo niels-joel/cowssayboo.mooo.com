@@ -1,2 +1,2 @@
-# cow.mooo.com
+# cowssayboo.mooo.com
 Cow Website
